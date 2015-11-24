@@ -6,7 +6,15 @@ Je m'appelle Laurine, j'ai 31 ans et j'habite aux Petites Islettes.
 ![Simplon.co](http://www.communes.com/images/orig/lorraine/meuse/les-islettes_55120/map_les-islettes_55120.png)
 
 J'ai à mon actif une expérience de 7 ans en tant que secrétaire - agent d'accueil en clinique psychiatrique...
-et quelques autres petits boulots. 
+et quelques autres petits boulots.
+
+_Dernières Expériences Professionnelles :_
+
+*2015 : Animatrice en zone accueil - *Pôle Emploi*
+*2012 : Secrétaire commerciale - *Europortail*
+*2011 : Agent d'accueil - *Casino Barrière de Lille*
+*2011 : Clinique psychiatrique - *HPM*
+
 
 _Ma formation :_ 
 *Titulaire d'un DAEU littéraire 
