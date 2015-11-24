@@ -21,9 +21,12 @@ _Dernières Expériences Professionnelles:_
 
 
 _Ma formation :_ 
-*Titulaire d'un DAEU littéraire 
-*Formation de qualité d'accueil Casino Barrière 
-*Formation de fidélisation clientèle chez Afibel 
+*Titulaire d'un DAEU littéraire  
+
+*Formation de qualité d'accueil Casino Barrière  
+
+*Formation de fidélisation clientèle chez Afibel  
+
 
 _Pourquoi Simplonline_  
 Je suis inscrite sur Simplonline parce que je débute la formation Webogreen. 
