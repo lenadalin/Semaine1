@@ -8,7 +8,7 @@ Je m'appelle Laurine, j'ai 31 ans et j'habite aux Petites Islettes.
 J'ai à mon actif une expérience de 7 ans en tant que secrétaire - agent d'accueil en clinique psychiatrique...
 et quelques autres petits boulots.
 
-_Dernières Expériences Professionnelles :_
+_Dernières Expériences Professionnelles:_
 
 *2015 : Animatrice en zone accueil - *Pôle Emploi*  
 
