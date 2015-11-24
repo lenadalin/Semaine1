@@ -15,3 +15,5 @@ Je suis inscrite sur Simplonline parce que je débute la formation Webogreen.
 *Etant novice et n'ayant que bidouillé des css et html de blogs et de sites web, j'attends énormément 
 de cette formation, afin d'apprendre l'essentiel. J'aimerais alors pouvoir combiner ma passion de la photographie, 
 à celle de la conception de sites web.* 
+
+
