@@ -16,7 +16,10 @@ _Dernières Expériences Professionnelles:_
 
 *2011 : Agent d'accueil - *Casino Barrière de Lille*  
 
-*2011 : Clinique psychiatrique - *HPM*  
+*2011 : Clinique psychiatrique - *HPM*    
+  
+    
+    
 
 
 
