@@ -10,10 +10,14 @@ et quelques autres petits boulots.
 
 _Dernières Expériences Professionnelles :_
 
-*2015 : Animatrice en zone accueil - *Pôle Emploi*
-*2012 : Secrétaire commerciale - *Europortail*
-*2011 : Agent d'accueil - *Casino Barrière de Lille*
-*2011 : Clinique psychiatrique - *HPM*
+*2015 : Animatrice en zone accueil - *Pôle Emploi*  
+
+*2012 : Secrétaire commerciale - *Europortail*  
+
+*2011 : Agent d'accueil - *Casino Barrière de Lille*  
+
+*2011 : Clinique psychiatrique - *HPM*  
+
 
 
 _Ma formation :_ 
