@@ -2,6 +2,9 @@
 
 
 Je m'appelle Laurine, j'ai 31 ans et j'habite aux Petites Islettes.
+
+![Simplon.co](http://www.communes.com/images/orig/lorraine/meuse/les-islettes_55120/map_les-islettes_55120.png)
+
 J'ai à mon actif une expérience de 7 ans en tant que secrétaire - agent d'accueil en clinique psychiatrique...
 et quelques autres petits boulots. 
 
